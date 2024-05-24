@@ -71,7 +71,7 @@ Instructions:
 6. Reduce heat to low and let simmer for 10-15 minutes.
 7. Serve meatballs and sauce over spaghetti.
 
-### Grilled Chicken Sandwich
+### Spicy Grilled Chicken Sandwich
 
 Ingredients:
 - 2 boneless, skinless chicken breasts
@@ -82,6 +82,8 @@ Ingredients:
 - Lettuce
 - Tomato
 - Mayonnaise
+- ketchup
+- habanero 
 
 Instructions:
 1. Preheat grill to medium-high heat.
