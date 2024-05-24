@@ -115,3 +115,18 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Milk rice
+
+- 2 cups short-grain rice 
+- 6 cups water
+- 4 cups milk
+- 1 pinch salt
+- 1 vanilla bean
+- 6 tablespoons sugar 
+
+Instructions 
+ 1. Bring water to a boil in a large saucepan. Wash the rice and drain it. Add the rice to the boiling water, and cook for 5 minutes.
+2. In a separate saucepan, bring the milk to a boil over medium heat.
+3. Remove the cooked rice and drain it. Slowly drop the rice into the boiling milk. Lower the heat and add salt, vanilla bean, and sugar. Cover and simmer 15 - 20 minutes, stirring occasionally, until the milk is absorbed. Add more milk, if necessary for a tender rice.
+4. Serve warm, cold or room temperature - your preference.
